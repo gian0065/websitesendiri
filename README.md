@@ -1,0 +1,2 @@
+# websitesendiri
+dilarang komentar
